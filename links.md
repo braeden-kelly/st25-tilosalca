@@ -1,0 +1,1 @@
+- https://stirtrek.com/speakers/2025/Cory-House.html#abstract
